@@ -15,7 +15,7 @@ Please share this information with interested graduate students, contingent facu
 
 Even if you did not attend Computers and Writing this year, please join us in talking about how we work with digital technology in the classroom, in our research, and in our professional lives (and elsewhere!). 
 
-If you have any questions that I can help with, feel free to contact Traci Gardner directly at @tengrrl or tengrrl@tengrrl.com/
+If you have any questions that I can help with, feel free to contact Traci Gardner directly at @tengrrl or tengrrl@tengrrl.com.
 
 ---
 P.S. I promise to make this prettier once I'm back home! —Traci
